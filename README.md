@@ -1,1 +1,1 @@
-https://MalvinaTsulukidze.github.io/rsschool-cv
+https://MalvinaTsulukidze.github.io/rsschool-cv/cv
